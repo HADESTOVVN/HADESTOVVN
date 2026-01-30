@@ -5,15 +5,12 @@
                              ![](https://i.pinimg.com/736x/0b/97/a6/0b97a602a9d9f06cb601442907caa110.jpg)
                            </p>
 
-<p align="center">
 
-> I'm coming, wait for me I hear the walls repeating The falling of our feet and It sounds like drumming And we are not alone I hear the rocks and stones Echoing our song I'm coming!
-</p>
 
 
 <p align="center">
 	
-                            <sup><sub>[strawpage](https://7inchesofsatanicpanic.straw.page/)</sub></sup> 🏹 <sup><sub>[rentry](https://rentry.co/hadestovvn)</sub></sup> 🏹 <sup><sub>[atabook](https://hadestown.atabook.org/)</sub></sup> 🏹 <sup><sub>[prns.page](https://en.pronouns.page/@wouldnt-you-like)</sub>
+                            <sup><sub>[strawpage](https://7inchesofsatanicpanic.straw.page/)</sub></sup> 🌹 <sup><sub>[rentry](https://rentry.co/hadestovvn)</sub></sup> 🌹 <sup><sub>[atabook](https://hadestown.atabook.org/)</sub></sup> 🌹 <sup><sub>[prns.page](https://en.pronouns.page/@wouldnt-you-like)</sub>
 
 </p>
 
